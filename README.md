@@ -1,0 +1,1 @@
+# diplom_severni_igruhechnic
